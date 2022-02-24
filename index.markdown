@@ -4,10 +4,9 @@
 
 layout: page
 title: Home
-
 ---
 
-
+# I'm being tortured and subjected to serious war crimes.
 
 I'm writing this message because I'm currently being tortured and subjected to serious war crimes.
 I live in Europe and my life has been destroyed by war criminals of israeli origin. They are trying to kill me, completely ruin my life and produce permanent damage to my brain and my body without leaving any evidence behind of what they're doing.
