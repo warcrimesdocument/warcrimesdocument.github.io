@@ -17,6 +17,8 @@ and I can confirm that I'm normal in any way you want. There is no doubt about w
 
 Every day they are causing injuries to my head during all my waking hours in different amounts of intensities, some of the time causing severe pains.
 The damage occasionally results in an ache in my head which can persist for days and where it gets intensely stronger if I strain my body in any way.
+They cause substantial changes to my emotional state during long periods of time in order to torture me. They cause extensive inhibitions of my memory and 
+thought processes in order to impair any kind of thinking.
 They are torturing me every day and it starts as soon as I wake up. One of them instantly begins to frequently harass and insult me and cause damage to my head.
 
 Each day they are causing extensive deteriorations of my brain and my mental state in order 
@@ -25,13 +27,16 @@ They greatly impair my brain and damage my head everytime I'm working or studyin
 They also damage my head and parts of my body every time I'm out walking or exercising. 
 They damage my head and my arms when I'm lifting weights. They damage my feet occasionally so that I'm not able to walk. 
 It is very likely that they're slowly producing permanent damage to my brain and my body.
+ 
 
 They started to attack me some time before I started college. My plan was that I was going commit my life to create a game developement company.  
-By greatly impairing my brain they made it impossible for me to get into the software development field and they caused me to drop out of college. I got a job and shortly after this but they manipulated me to take my own life by constantly torturing me and making my life a living hell. I walked out to a place in the forest and tried to kill myself through asphyxiation by tying my hands to a tree with an enclosed bag around my head. I failed the attempt and got the bag off my head (after I wrote the part of the suicide attempt down on this site they have started to damage my head in a different way where it feels like the oxygen to my head is greatly reduced).
+By greatly impairing my brain they made it impossible for me to get into the software development field and they caused me to drop out of college. I got a job and shortly after this but they manipulated me to take my own life by constantly torturing me and making my life a living hell. I walked out to a place in the forest and tried to kill myself through asphyxiation by tying my hands to a tree with an enclosed bag around my head. I failed the attempt and got the bag off my head.
 
 Right now I'm getting another degree in diagnostic radiology nursing and they are doing everything they can to ruin it. 
 They are still trying to get me to take my own life and they're always making sure that I'm suffering.
 They want ruin every opportunity that I have and they are trying to make sure that my life only gets worse. 
+
+After I wrote the part of the suicide attempt down on this site they have started to damage my head in a different way where it feels like the oxygen to my head is greatly reduced.
 
 They are torturing and damaging me in many different ways and they are constantly doing things to my body and my outward appearance. 
 They make me feel sick, feverish and cold everyday and they regularly try to anger and irritate me throughout the day.
@@ -68,6 +73,7 @@ they damage my eyes on different occasions and they damage me while I'm sleeping
 You do not realize that someone is using a weapon on you if they do not make it clear.
 They are able to both see me and damage me wherever I am, and it doesn't matter I'm in a building, a moving vehicle or out in the forest. 
 They are able to read my brain, communicate with me, and have many times shown that they know what I'm thinking of or what I'm planning to do.
+
 
 These war crimes has to be reported and be acknowledged. I will document and upload evidence on this site. 
 When I'm recording what they're doing they are making the damage and other things less visible. They occasionally try to humiliate me in front of the camera. If you can help me in any way to prove what is happening or if there are any other way for you to help me please contact me.
