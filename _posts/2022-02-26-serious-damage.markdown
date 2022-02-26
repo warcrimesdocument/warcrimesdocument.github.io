@@ -2,6 +2,7 @@
 layout: post
 title:  "Serious damage."
 date:   2022-02-26 14:19
+categories: torture
 ---
 
 The damage they are causing to my head has been getting more serious. I have to find ways to measure 
