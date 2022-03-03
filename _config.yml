@@ -19,7 +19,7 @@
 # in the templates via {{ site.myvariable }}.
 
 title: warcrimesdocument
-email: your-email@example.com
+email: contact@warcrimesdocument.info
 description: >- # this means to ignore newlines until "baseurl:"
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "https://warcrimesdocument.github.io" # the base hostname & protocol for your site, e.g. http://example.com

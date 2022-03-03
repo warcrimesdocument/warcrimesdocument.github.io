@@ -36,8 +36,6 @@ Right now I'm getting another degree in diagnostic radiology nursing and they ar
 They are still trying to get me to take my own life and they're always making sure that I'm suffering.
 They want ruin every opportunity that I have and they are trying to make sure that my life only gets worse. 
 
-After I wrote the part of the suicide attempt down on this site they have started to damage my head in a different way where it feels like the oxygen to my head is greatly reduced.
-
 They are torturing and damaging me in many different ways and they are constantly doing things to my body and my outward appearance. 
 They make me feel sick, feverish and cold everyday and they regularly try to anger and irritate me throughout the day.
 
@@ -64,6 +62,7 @@ They produce different facial expressions, smiles, exaggerated smiles and facial
 to my voice and a strange, stuttering and nervous way of speaking. They slighly open my mouth while making it hard to feel and prevent it.
 They frequently produce sounds from my stomach when I'm near other people.
 They are able to make me sneeze, sometimes successively, on different occasions when I'm near other people.
+They are able to control the urinary system and they have caused me to urinate in my pants on numerous planned occasions when they make it impossible for me to hold it. 
 
 They frequently simulate certain unpleasant odors when I'm in the presence other people. 
 At the same time they communicate with me and try to anger me as much as they can. They can say things like "they think you smell like shit, they think you're farting" and other insults.
@@ -74,6 +73,13 @@ You do not realize that someone is using a weapon on you if they do not make it 
 They are able to both see me and damage me wherever I am, and it doesn't matter I'm in a building, a moving vehicle or out in the forest. 
 They are able to read my brain, communicate with me, and have many times shown that they know what I'm thinking of or what I'm planning to do.
 
+The weapon they're using is a big threat to our society and they're able to influence the mind, control bodily functions and damage the body in a lot of different ways.
+It has a very big impact on the mental associations that you have between different things and your judgement. 
+They are able to control and cause substantial changes to your 
+emotional state. They are able to frequently manifest and keep thoughts, sensations, mental imagery and emotions 
+present in your mind under long periods of time.
+They are able to manifest small movements in your body and you can see/sense the preliminary stage of the actions that they are trying to manifest 
+in your brain. They can manifest desires and impulses for you to do a certain action. 
 
 These war crimes has to be reported and be acknowledged. I will document and upload evidence on this site. 
 When I'm recording what they're doing they are making the damage and other things less visible. They occasionally try to humiliate me in front of the camera. If you can help me in any way to prove what is happening or if there are any other way for you to help me please contact me.
