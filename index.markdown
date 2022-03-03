@@ -26,6 +26,7 @@ to both torture me and strongly impair my ability to do any kind of work and thi
 They greatly impair my brain and damage my head everytime I'm working or studying and they frequently harass and insult me while it is all going on.  
 They also damage my head and parts of my body every time I'm out walking or exercising. 
 They damage my head and my arms when I'm lifting weights. They damage my feet occasionally so that I'm not able to walk. 
+They damage my bottom while I'm sitting down so that I have to reposition myself. 
 It is very likely that they're slowly producing permanent damage to my brain and my body.
  
 
