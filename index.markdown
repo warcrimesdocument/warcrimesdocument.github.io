@@ -79,7 +79,7 @@ You do not realize that someone is using a weapon on you if they do not make it 
 They are able to both see me and damage me wherever I am, and it doesn't matter I'm in a building, a moving vehicle or out in the forest. 
 They are able to read my brain, communicate with me, and have many times shown that they know what I'm thinking of or what I'm planning to do.
 
-The weapon they have access to and are using is a great threat to our society. They are currently able to commit numerous war crimes and damage to a 
+The weapon they have access to and are using is a great threat to our society. They are currently able to commit numerous war crimes and cause damage to a 
 country while people are unaware that is it happening. It is urgent that something gets done. 
 
 They're able to influence the brain, bodily functions and damage the body in a lot of different ways.

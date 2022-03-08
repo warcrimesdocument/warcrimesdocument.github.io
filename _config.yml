@@ -56,3 +56,4 @@ header_pages:
   - about.markdown
   - blog.markdown
   - media.markdown
+  - updates.markdown
