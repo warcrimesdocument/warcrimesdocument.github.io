@@ -57,7 +57,12 @@ When I speak to people they also do things with my mouth and my saliva in order 
 
 They frequently damage my skin and produce scaly and red damaged skin on my hands, my face, my lips and the corners of my mouth.
 They constantly contract muscles in my mouth, face, jaw, neck, arms and others parts of my body, causing them to be extremely tense 
-in order to produce weird facial expressions, bodily movements and postures.
+in order to produce weird facial expressions, bodily movements and postures. When I'm interacting or when I'm in the presence of other people they repeatedly 
+cause me to mistakenly glance at inappropriate locations when I move and turn my head.
+
+They do things with my body and cause muscle contractions and pains in my body and my neck in order to twist my head and produce
+a bent and weird posture. They frequently do this when I'm recording that they're impairing and damaging my brain while I'm studying and when I'm 
+in the presence  of other people.
 
 They produce different facial expressions, smiles, exaggerated smiles and facial reactions to things when I'm interacting with other people. They produce changes 
 to my voice and a strange, stuttering and nervous way of speaking. They slighly open my mouth while making it hard to feel and prevent it.
@@ -74,13 +79,19 @@ You do not realize that someone is using a weapon on you if they do not make it 
 They are able to both see me and damage me wherever I am, and it doesn't matter I'm in a building, a moving vehicle or out in the forest. 
 They are able to read my brain, communicate with me, and have many times shown that they know what I'm thinking of or what I'm planning to do.
 
-The weapon they're using is a big threat to our society and they're able to influence the mind, control bodily functions and damage the body in a lot of different ways.
-It has a very big impact on the mental associations that you have between different things and your judgement. 
+The weapon they have access to and are using is a great threat to our society. They are currently able to commit numerous war crimes and damage to a 
+country while people are unaware that is it happening. It is urgent that something gets done. 
+
+They're able to influence the brain, bodily functions and damage the body in a lot of different ways.
+It has a very big impact on the mental associations that you have between different things and on your judgement. 
 They are able to control and cause substantial changes to your 
-emotional state. They are able to frequently manifest and keep thoughts, sensations, mental imagery and emotions 
+emotional state. They can manifest strong emotional reactions to things, where it is obvious that they're not yours.
+They are able to frequently produce and keep thoughts, sensations, mental imagery and emotions 
 present in your mind under long periods of time.
 They are able to manifest small movements in your body and you can see/sense the preliminary stage of the actions that they are trying to manifest 
-in your brain. They can manifest desires and impulses for you to do a certain action. 
+in your brain. They can manifest desires and impulses for you to do a certain action. They have shown that they're able to influence electronic devices
+where they frequently do things and disconnect my wireless connection and they stop when I'm trying to record it. They cause sudden lags on my computer and my phone 
+and they're doing things with my mobile phone camera when I'm recording what they're doing. 
 
 These war crimes has to be reported and be acknowledged. I will document and upload evidence on this site. 
 When I'm recording what they're doing they are making the damage and other things less visible. They occasionally try to humiliate me in front of the camera. If you can help me in any way to prove what is happening or if there are any other way for you to help me please contact me.
