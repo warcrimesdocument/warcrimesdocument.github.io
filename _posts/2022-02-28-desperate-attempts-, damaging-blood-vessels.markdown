@@ -10,5 +10,5 @@ about the critical situation and the war crimes I'm being subjected to.
 They do diverse things to my body and my emotional state where they are trying to cause numerous stressful situations. While they are doing this they simultaneously
 frequently insult me in different ways and cause strong and uncomfortable pains to my head. 
 
-They are doing things to my body and damaging me in different ways. They recently caused tough pains to the blood vessels on the side of my neck
+They are doing things to my body and are damaging me in different ways. They recently caused strong pains to the blood vessels on the side of my neck
 while I was exerting my body.

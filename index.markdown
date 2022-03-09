@@ -26,7 +26,6 @@ to both torture me and strongly impair my ability to do any kind of work and thi
 They greatly impair my brain and damage my head everytime I'm working or studying and they frequently harass and insult me while it is all going on.  
 They also damage my head and parts of my body every time I'm out walking or exercising. 
 They damage my head and my arms when I'm lifting weights. They damage my feet occasionally so that I'm not able to walk. 
-They damage my bottom while I'm sitting down so that I have to reposition myself. 
 It is very likely that they're slowly producing permanent damage to my brain and my body.
  
 
@@ -62,7 +61,7 @@ cause me to mistakenly glance at inappropriate locations when I move and turn my
 
 They do things with my body and cause muscle contractions and pains in my body and my neck in order to twist my head and produce
 a bent and weird posture. They frequently do this when I'm recording that they're impairing and damaging my brain while I'm studying and when I'm 
-in the presence  of other people.
+in the presence of other people.
 
 They produce different facial expressions, smiles, exaggerated smiles and facial reactions to things when I'm interacting with other people. They produce changes 
 to my voice and a strange, stuttering and nervous way of speaking. They slighly open my mouth while making it hard to feel and prevent it.
