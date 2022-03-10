@@ -9,7 +9,7 @@ title: Home
 # I'm being tortured and subjected to serious war crimes.
 
 I'm writing this message because I'm currently being tortured and subjected to serious war crimes.
-I live in Europe and my life has been destroyed by war criminals of israeli origin. They are trying to kill me, completely ruin my life and produce permanent damage to my brain and my body without leaving any evidence behind of what they're doing.
+I live in Sweden and my life has been destroyed by war criminals of israeli origin. They are trying to kill me, completely ruin my life and produce permanent damage to my brain and my body without leaving any evidence behind of what they're doing.
 
 It is now confirmed that we're at this stage in history where it is possible to remotely control and damage the brain, the body and the bodily organs. They are making it very hard for me to write this message. I know how this sounds but I can assure you that I'm completely sane and mentally healthy
 and I can confirm that I'm normal in any way you want. There is no doubt about what is happening and I must let people know what they are doing to me.
@@ -91,6 +91,9 @@ They are able to manifest small movements in your body and you can see/sense the
 in your brain. They can manifest desires and impulses for you to do a certain action. They have shown that they're able to influence electronic devices
 where they frequently do things and disconnect my wireless connection and they stop when I'm trying to record it. They cause sudden lags on my computer and my phone 
 and they're doing things with my mobile phone camera when I'm recording what they're doing. 
+
+They are trying to get me to sound and look mentally ill in my interactions with other people. It's one of their defence that they are using in order to make 
+sure that no one will believe me.
 
 These war crimes has to be reported and be acknowledged. I will document and upload evidence on this site. 
 When I'm recording what they're doing they are making the damage and other things less visible. They occasionally try to humiliate me in front of the camera. If you can help me in any way to prove what is happening or if there are any other way for you to help me please contact me.
