@@ -1,7 +1,6 @@
 ---
 layout: post
-title: "Brainwashed into writing a mentally ill sounding message to the authorities in 2019 (min tidigare kontakt med polisen var 
-resultatet av deras arbete)."
+title: "They brainwashed me into writing a mentally ill sounding message to the authorities in 2019, before they caused my suicide attempt. (If they are reading this: Min tidigare kontakt med polisen var resultatet av deras arbete)."
 date: 2022-03-10 14:20:00 +0100
 categories: torture
 ---
@@ -13,7 +12,7 @@ It's a testimony of what the weapon they are using is able to do your mind. This
 
 ![Alt text for broken link](https://lh3.googleusercontent.com/pw/AM-JKLWnu7bJn-7m7zm6_DrvwA9WKT79lNx567lcMgYhWlmV_VPNZu4MZi87aA4SMAEecz7V74zLzT-5kfpjPkGK6Czi0Sd4gW8trEKuL_aeS6e0jZvbN_jsZdl2qHBe5Fg_xqf4MPYjCO1IJu0lK7V8g74=w1214-h890-no?authuser=0)
 
-Here's a translation of the email they managed to got me to write and send:  
+Here's a translation of the email they brainwashed me to write and send:  
 
 "Individuals are subjected to crimes by actors who are acting on behalf of other states. 
 Individuals are poisoned, drugged and influenced by the actors in a systematic and planned approach.

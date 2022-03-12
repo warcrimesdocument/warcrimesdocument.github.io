@@ -39,11 +39,11 @@ They want ruin every opportunity that I have and they are trying to make sure th
 They are torturing and damaging me in many different ways and they are constantly doing things to my body and my outward appearance. 
 They make me feel sick, feverish and cold everyday and they regularly try to anger and irritate me throughout the day.
 
-They want to ruin all my social relations and are doing lots of different 
+They want to ruin all my social relations and they are doing lots of different 
 things in order to humiliate me and make me seem mentally ill when I'm interacting with or being near other people.  
-They produce changes to my appearance comparable to allergic reactions (larger swollen red nose and other facial differences). 
-They are able to manually produce secrete from the glands in my nose, my mouth and my eyes and they do this when they want to humiliate me and 
-damage my relations with other people.
+They produce changes to my appearance comparable to allergic reactions (larger swollen red nose, strange lips and other facial differences). 
+They are able to manually produce secrete from the glands in my nose, my mouth and my eyes and they do this when they want to humiliate me, 
+damage my relations with other people and frustrate me. I make sure to wash myself and all parts of my face every day and shortly after they produce mucus in my tear ducts, dried scaly skin around my face, mouth and lips, dried mucus around my nostrils and other things, all which I have to repeatedly clean throughout the day. They have also caused permanent damage to my appearance, where you can see visible blood vessel inside my nostrils that weren't there before. They frequently produce lots of pimples on my face and inside my nostrils. Nothing of this occurred in the past.
 
 Every day they cause an excessive production snot, an excessive runny nose and they cause the mucus to rapidly drip out of my nose to areas around my nostrils,
 the tip of my nose and to my mouth.
@@ -52,12 +52,12 @@ When I'm in the presence of other people they also dry up mucus in order to prod
 They cause an excessive production of saliva and at the same time they do things with my mouth and my throat in order to produce
 disturbing sounds when I frequently have to swallot it when I'm near other people. When other people can see it they also cause the saliva to be very thick and sticky
 in order to make it visible when I open my mouth and to make it stick to everything it touches.
-When I speak to people they also do things with my mouth and my saliva in order to cause me to spit and produce disturbing sound when I talk.
+When I speak to people they also do things with my mouth and my saliva in order to cause me to spit on other people and produce disturbing sound when I talk.
 
 They frequently damage my skin and produce scaly and red damaged skin on my hands, my face, my lips and the corners of my mouth.
 They constantly contract muscles in my mouth, face, jaw, neck, arms and others parts of my body, causing them to be extremely tense 
 in order to produce weird facial expressions, bodily movements and postures. When I'm interacting or when I'm in the presence of other people they repeatedly 
-cause me to mistakenly glance at inappropriate locations when I move and turn my head.
+cause me to mistakenly glance at inappropriate locations on people when I move and turn my head.
 
 They do things with my body and cause muscle contractions and pains in my body and my neck in order to twist my head and produce
 a bent and weird posture. They frequently do this when I'm recording that they're impairing and damaging my brain while I'm studying and when I'm 
