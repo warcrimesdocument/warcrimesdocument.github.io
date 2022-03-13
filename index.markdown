@@ -34,6 +34,8 @@ By greatly impairing my brain they made it impossible for me to get into the sof
 
 Right now I'm getting another degree in diagnostic radiology nursing and they are doing everything they can to ruin it. 
 They are still trying to get me to take my own life and they're always making sure that I'm suffering.
+After I've started studying the program they have frequently begun to cause bleedings and wounds 
+on my hands by making them really dry, which will lead to problems when I'm working in a health care setting.
 They want ruin every opportunity that I have and they are trying to make sure that my life only gets worse. 
 
 They are torturing and damaging me in many different ways and they are constantly doing things to my body and my outward appearance. 
@@ -54,14 +56,14 @@ disturbing sounds when I frequently have to swallot it when I'm near other peopl
 in order to make it visible when I open my mouth and to make it stick to everything it touches.
 When I speak to people they also do things with my mouth and my saliva in order to cause me to spit on other people and produce disturbing sound when I talk.
 
-They frequently damage my skin and produce scaly and red damaged skin on my hands, my face, my lips and the corners of my mouth.
+They frequently damage my skin and produce scaly and red damaged skin on my hands, my face, my lips (they frequently cause 
+damage to a specific part on the middle of my upper lip which is visible on lots of documented material) and the corners of my mouth.
 They constantly contract muscles in my mouth, face, jaw, neck, arms and others parts of my body, causing them to be extremely tense 
 in order to produce weird facial expressions, bodily movements and postures. When I'm interacting or when I'm in the presence of other people they repeatedly 
 cause me to mistakenly glance at inappropriate locations on people when I move and turn my head.
 
 They do things with my body and cause muscle contractions and pains in my body and my neck in order to twist my head and produce
-a bent and weird posture. They frequently do this when I'm recording that they're impairing and damaging my brain while I'm studying and when I'm 
-in the presence of other people.
+a bent and weird posture. They frequently do this when I'm recording that they're impairing and damaging my brain while I'm studying and when I'm  in the presence of other people.
 
 They produce different facial expressions, smiles, exaggerated smiles and facial reactions to things when I'm interacting with other people. They produce changes 
 to my voice and a strange, stuttering and nervous way of speaking. They slighly open my mouth while making it hard to feel and prevent it.
@@ -73,6 +75,7 @@ They frequently simulate certain unpleasant odors when I'm in the presence other
 At the same time they communicate with me and try to anger me as much as they can. They can say things like "they think you smell like shit, they think you're farting" and other insults.
 They damage many different parts of my body, they frequently make it hard to breathe,
 they damage my eyes on different occasions and they damage me while I'm sleeping so that I wake up.
+When they want to hinder me from falling asleep they make me feel awake. 
 
 You do not realize that someone is using a weapon on you if they do not make it clear.
 They are able to both see me and damage me wherever I am, and it doesn't matter I'm in a building, a moving vehicle or out in the forest. 
@@ -92,8 +95,8 @@ in your brain. They can manifest desires and impulses for you to do a certain ac
 where they frequently do things and disconnect my wireless connection and they stop when I'm trying to record it. They cause sudden lags on my computer and my phone 
 and they're doing things with my mobile phone camera when I'm recording what they're doing. 
 
-They are trying to get me to sound and look mentally ill in my interactions with other people. It's one of their defence that they are using in order to make 
-sure that no one will believe me.
+They are trying to get me to sound and look mentally ill in my interactions with other people. It's one of their defence that they are using in order to make  sure that no one will believe me.
 
 These war crimes has to be reported and be acknowledged. I will document and upload evidence on this site. 
-When I'm recording what they're doing they are making the damage and other things less visible. They occasionally try to humiliate me in front of the camera. If you can help me in any way to prove what is happening or if there are any other way for you to help me please contact me.
+When I'm recording what they're doing they are making the damage and other things less visible. 
+When I'm recording my cognitive functions in order to document the brain damage that they are causing they instantly start to impair my brain. They are also changing their methods and are making everything much less visible when I'm recording myself while I'm studying. Instead of producing visible damage and uncomfortable pains to my head they have started to greatly reduce my state of wakefulness while they impair other functions of the brain at the same time. They occasionally try to humiliate me in front of the camera. If you can help me in any way to prove what is happening or if there are any other way for you to help me please contact me.
