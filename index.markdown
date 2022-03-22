@@ -24,10 +24,11 @@ They are torturing me every day and it starts as soon as I wake up. One of them 
 Each day they are causing extensive deteriorations of my brain and my mental state in order 
 to both torture me and strongly impair my ability to do any kind of work and thinking. 
 They greatly impair my brain and damage my head everytime I'm working or studying and they frequently harass and insult me while it is all going on.  
+After I started this site and started to document and record the damage of my head and impairments of my brain they have begun to reduce my state of wakefulness, making me look and feel tired.
 They also damage my head and parts of my body every time I'm out walking or exercising. 
 They damage my head and my arms when I'm lifting weights. They damage my feet occasionally so that I'm not able to walk. 
-It is very likely that they're slowly producing permanent damage to my brain and my body.
- 
+
+It is very likely that they're slowly producing permanent damage to my brain and my body. 
 
 They started to attack me some time before I started college. My plan was that I was going commit my life to create a game developement company.  
 By greatly impairing my brain they made it impossible for me to get into the software development field and they caused me to drop out of college. I got a job and shortly after this but they manipulated me to take my own life by constantly torturing me and making my life a living hell. I walked out to a place in the forest and tried to kill myself through asphyxiation by tying my hands to a tree with an enclosed bag around my head. I failed the attempt and got the bag off my head.
@@ -43,7 +44,7 @@ They make me feel sick, feverish and cold everyday and they regularly try to ang
 
 They want to ruin all my social relations and they are doing lots of different 
 things in order to humiliate me and make me seem mentally ill when I'm interacting with or being near other people.  
-They produce changes to my appearance comparable to allergic reactions (larger swollen red nose, strange lips and other facial differences). 
+They produce changes to my appearance comparable to allergic reactions (larger swollen red nose, strange lips and other facial differences). I frequently feel heat on face when they are doing things.
 They are able to manually produce secrete from the glands in my nose, my mouth and my eyes and they do this when they want to humiliate me, 
 damage my relations with other people and frustrate me. I make sure to wash myself and all parts of my face every day and shortly after they produce mucus in my tear ducts, dried scaly skin around my face, mouth and lips, dried mucus around my nostrils and other things, all which I have to repeatedly clean throughout the day. They have also caused permanent damage to my appearance, where you can see visible blood vessel inside my nostrils that weren't there before. They frequently produce lots of pimples on my face and inside my nostrils. Nothing of this occurred in the past.
 
@@ -56,8 +57,8 @@ disturbing sounds when I frequently have to swallot it when I'm near other peopl
 in order to make it visible when I open my mouth and to make it stick to everything it touches.
 When I speak to people they also do things with my mouth and my saliva in order to cause me to spit on other people and produce disturbing sound when I talk.
 
-They frequently damage my skin and produce scaly and red damaged skin on my hands, my face, my lips (they frequently cause 
-damage to a specific part on the middle of my upper lip which is visible on lots of documented material) and the corners of my mouth.
+They frequently damage my skin and produce scaly and red damaged skin on my hands, my face, my lips and the corners of my mouth.
+They have frequently been damaging a specific part on the middle of my upper lip which is clearly visible on lots of documented material.
 They constantly contract muscles in my mouth, face, jaw, neck, arms and others parts of my body, causing them to be extremely tense 
 in order to produce weird facial expressions, bodily movements and postures. When I'm interacting or when I'm in the presence of other people they repeatedly 
 cause me to mistakenly glance at inappropriate locations on people when I move and turn my head.
@@ -81,22 +82,20 @@ You do not realize that someone is using a weapon on you if they do not make it 
 They are able to both see me and damage me wherever I am, and it doesn't matter I'm in a building, a moving vehicle or out in the forest. 
 They are able to read my brain, communicate with me, and have many times shown that they know what I'm thinking of or what I'm planning to do.
 
-The weapon they have access to and are using is a great threat to our society. They are currently able to commit numerous war crimes and cause damage to a 
-country while people are unaware that is it happening. It is urgent that something gets done. 
+They are currently able to commit numerous war crimes and cause damage to a 
+country while people are unaware that is it happening. Something has to get done. 
 
 They're able to influence the brain, bodily functions and damage the body in a lot of different ways.
-It has a very big impact on the mental associations that you have between different things and on your judgement. 
+It has a very big impact on your mind, your thoughts, the mental associations that you have between different things and on your judgement. 
 They are able to control and cause substantial changes to your 
 emotional state. They can manifest strong emotional reactions to things, where it is obvious that they're not yours.
 They are able to frequently produce and keep thoughts, sensations, mental imagery and emotions 
 present in your mind under long periods of time.
 They are able to manifest small movements in your body and you can see/sense the preliminary stage of the actions that they are trying to manifest 
-in your brain. They can manifest desires and impulses for you to do a certain action. They have shown that they're able to influence electronic devices
-where they frequently do things and disconnect my wireless connection and they stop when I'm trying to record it. They cause sudden lags on my computer and my phone 
-and they're doing things with my mobile phone camera when I'm recording what they're doing. 
+in your brain. They can manifest desires and impulses for you to do a certain action. 
 
-They are trying to get me to sound and look mentally ill in my interactions with other people. It's one of their defence that they are using in order to make  sure that no one will believe me.
+They're able to influence electronic devices and they try to irritate me by causing frequent errors and lags on my computer and my phone, and frequent disconnections of my wireless connection on different places (campus, libraries and home network) and also disconnections of my cellular network. They stop and it instantly starts to work when I'm trying to record it. They do things with my mobile phone camera when I'm recording and taking images of what they're doing so that I have to refocus the camera and take multiple retakes of an image. They also cause the documented material to get blurred out. 
 
-These war crimes has to be reported and be acknowledged. I will document and upload evidence on this site. 
-When I'm recording what they're doing they are making the damage and other things less visible. 
-When I'm recording my cognitive functions in order to document the brain damage that they are causing they instantly start to impair my brain. They are also changing their methods and are making everything much less visible when I'm recording myself while I'm studying. Instead of producing visible damage and uncomfortable pains to my head they have started to greatly reduce my state of wakefulness while they impair other functions of the brain at the same time. They occasionally try to humiliate me in front of the camera. If you can help me in any way to prove what is happening or if there are any other way for you to help me please contact me.
+They are trying to get me to sound and look mentally ill in my interactions with other people. It's one of their defence that they are using.
+I will document and upload evidence on this site. When I'm recording what they are doing they make everything much less visible. They occasionally try to humiliate me in front of the camera. These war crimes has to be reported and be acknowledged. 
+If you can help me in any way to prove what is happening or if there are any other way for you to help me please contact me.
